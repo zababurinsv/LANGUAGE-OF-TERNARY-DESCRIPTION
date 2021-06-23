@@ -1,3 +1,6 @@
 # LANGUAGE-OF-TERNARY-DESCRIPTION
 
-* https://vk.com/id29658412
+Systems Theory
+Information given by Dmitry Lyashenko
+social
+[VK](https://vk.com/id29658412)
