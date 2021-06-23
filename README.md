@@ -1,1 +1,3 @@
 # LANGUAGE-OF-TERNARY-DESCRIPTION
+
+* https://vk.com/id29658412
