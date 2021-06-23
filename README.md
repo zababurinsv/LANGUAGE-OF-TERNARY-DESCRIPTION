@@ -7,4 +7,4 @@ Oficial Sites
 * https://www.youtube.com/user/ui00iu/featured
 * http://www.philosof.onu.edu.ua/local/lib_article_page.php#uemov
 * http://uemov.org.ua/index.php
-
+* https://philosophy.ucoz.ru/publ/23
